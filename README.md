@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @AkuthotaHemanth
 - 👀 I’m interested in learning new things
-- 🌱 I’m currently learning Final year B.Tech
 - 💞️ I’m looking to collaborate on my goals
 - 📫 How to reach me 8555820041
 
